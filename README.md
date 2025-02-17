@@ -5,7 +5,7 @@ hihi!! You can call me Mafuu, although my friends usually call me Agustin or Zan
 
 he / him 𐙚
 
-I'm 15 years old, I'm turning 16 this year, so I'm still a minor.  
+I'm 15yo, I'm turning 16 this year, so I'm still a minor.  
 
 I may be too bipolar, my mood changes suddenly, so I'm sorry in advance for that 
 
