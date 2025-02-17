@@ -12,7 +12,7 @@ I may be too bipolar, my mood changes suddenly, so I'm sorry in advance for that
 ੭ I love everything that has to do with otome games! (obey me, collar x malice, amnesia, mistyc messenger ... and more)
 
 I also really like role-playing games, rhythm games... and many more! In fact, I can like anything that catches my attention. 
-I am a **big** fan of j-pop (I love MafuMafu so much, osaru and yuu miyashita) , vkei, gothic lolita, jirai kei + jirai dansha :3
+I am a **big** fan of j-pop (I love MafuMafu so much, osaru and yuu miyashita) , vkei, gothic lolita, jirai kei + jirai danshi :3
 
 ♱**DNI**: basic criteria of Dni, Just don't be weird with me, please. I may not like some fandoms, but I can tolerate them
 
